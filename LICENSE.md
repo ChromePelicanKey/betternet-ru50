@@ -1,4 +1,4 @@
-
+Enhance your Betternet experience with secure Betternet Addon | camouflage-mode + IP-masking, the #1 addon. Includes camouflage-mode and IP-masking for a safer and more private
 
 
 
